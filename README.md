@@ -1,3 +1,3 @@
 ### Olá pessoas! 🖖
 
-Quer falar diretamente? Chama no [Tele](https://nadaidennys.t.me/)!
+Quer falar diretamente? [Chama](https://nadaidennys.t.me/)!
