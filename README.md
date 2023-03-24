@@ -1,3 +1,3 @@
 ### Olá pessoas! 🖖
 
-Quer falar diretamente? [Chama no meu perfil público](https://nadaidennys.t.me/)!
+Quer falar diretamente? [Me mande um telegrama](https://nadaidennys.t.me/)!
